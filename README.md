@@ -16,7 +16,9 @@
 </h4>
 <h4><font size="2"><a href="https://www.instagram.com/denisaputraaaaa_/?hl=id"><font color="red">FOLLOW INSTAGRAM</font>
 </h4>
-<h4><font size="2"><a href="https://t.me/hwmodswa"><font color="red">TELEGRAM</font>          
+<h4><font size="2"><a href="https://t.me/hwmodswa"><font color="red">TELEGRAM</font> 
+</h4>
+<h4><font size="2"><a href="https://www.tiktok.com/@hwmods?_t=ZS-8uokMheD9a1&_r=1https://www.tiktok.com/@hwmods?_t=ZS-8uokMheD9a1&_r=1"><font color="red">TIKTOK</font>
 </p>
 </p>
 
